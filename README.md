@@ -1,1 +1,1 @@
-# Research-Paper
+Conducted extensive research for research paper resulting in comprehensive and insightful publication and Collaborated with a cross functional team to develop and execute successful research paper project within specified Timeframe
